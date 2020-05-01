@@ -1,1 +1,1 @@
-# MIS-for-PPE-Management-for-effective-Control-of-COVID-19
+# MIS_for_PPE-Kit_Management_for_Effective_Control_of_COVID-19
